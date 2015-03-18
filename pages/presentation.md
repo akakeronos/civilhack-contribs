@@ -1,6 +1,8 @@
 ## Le tout ouvert 
 Après 10 ans d'explorations dans les circuits de l'administration territoriale de proximité, je me suis dit qu'il serait peut être intéressant de témoigner sur le sens de mon engagement et sur la prespective d'un insider au sein des subsides de l'idéal du Conseil Nationale de la Resistance.
 
+![Pédaler en collectif pour avancer](https://farm9.staticflickr.com/8706/16858153305_dda8b605d8_n.jpg) 
+
 Après 4 ans passés au sein du dépôt des archives départementales de Gironde, j'ai rejoins la Direction des systèmes d'informations au sein de laquelle j'ai successivement tenu le poste de responsable d'applications puis de chef de projet pour m'orienter finalement aujourd'hui sur le rôle d'interface.
 
 ### La fiche de poste
